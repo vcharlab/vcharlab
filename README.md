@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Thank you for visiting.
+We are a team steaming with vchar(s) (ideas).
+Stay tuned to check out the exciting products we will bring to you!
